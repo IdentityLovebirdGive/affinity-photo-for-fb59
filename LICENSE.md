@@ -1,4 +1,4 @@
-# 
+# Affinity Photo for macOS updated Extension - shortcut customization and custom brushes offers the most advanced Affinity Photo for macOS extension, with shortcut customization and
 
 
 
